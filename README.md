@@ -1,1 +1,1 @@
-![andres]([https://resimyukle.io/r/zG183zhTKM])
+![andres](https://resimyukle.io/r/zG183zhTKM)
