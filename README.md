@@ -1,1 +1,1 @@
-![andres](https://resimyukle.io/r/zG183zhTKM)
+![andres](https://www.hizliresim.com/rjeyqld)
