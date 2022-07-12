@@ -1,1 +1,1 @@
-![andres]([http://url/to/img.png](https://resimyukle.io/r/zG183zhTKM))
+![andres]([https://resimyukle.io/r/zG183zhTKM](https://resimyukle.io/r/zG183zhTKM))
