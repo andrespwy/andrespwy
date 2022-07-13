@@ -1,1 +1,2 @@
-<a href="url"><img src="https://media.giphy.com/media/fNWPeZ7VtXrr5UtiFF/giphy.gif" align="left" height="300" width="1920" ></a>
+
+![ANDRESPWY (1920 × 1080 piksel)](https://user-images.githubusercontent.com/80523209/178835771-1d34e8e2-4762-41be-9e8a-aa6c8721fb7d.png)
